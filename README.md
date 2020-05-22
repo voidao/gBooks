@@ -1,6 +1,6 @@
 [Philosophy is Everybody's Business](https://www.thegreatideas.org/)
 
-[A year of reading the world](https://ayearofreadingtheworld.com/)
+[Ann Morgan - A year of reading the world](https://ayearofreadingtheworld.com/)
 
 [Robert Teeter's Library](http://sonic.net/~rteeter/index.html)
 

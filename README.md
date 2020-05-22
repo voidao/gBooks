@@ -6,6 +6,8 @@
 
 [Greater Books](http://www.greaterbooks.com/index.html)
 
+[Daniel Ang - Great Books Reading Project](https://www.danielang.net/great-books-reading-progress/)
+
 [Great Books of the Western World as Free eBooks](https://prodigalnomore.wordpress.com/great-books-of-the-western-world-as-free-ebooks/)
 
 [Great Conversation Reading Group](http://www.greatconversation.com/)

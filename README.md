@@ -8,7 +8,9 @@
 
 [Daniel Ang - Great Books Reading Project](https://www.danielang.net/great-books-reading-progress/)
 
-[Great Books of the Western World as Free eBooks](https://prodigalnomore.wordpress.com/great-books-of-the-western-world-as-free-ebooks/)
+[E-books - Great Books of the Western World@EasternUniversity](https://libguides.eastern.edu/greatbooks) - https://libguides.eastern.edu/greatbooks
+
+[Great Books of the Western World as Free eBooks](https://prodigalnomore.wordpress.com/great-books-of-the-western-world-as-free-ebooks/) - *outdated*
 
 [Great Conversation Reading Group](http://www.greatconversation.com/)
 
